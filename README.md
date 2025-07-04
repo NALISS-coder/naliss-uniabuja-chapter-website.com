@@ -1,1 +1,1 @@
-# naliss-uniabuja-chapter-website.com
+# naliss-uniabuja-chapter-website
